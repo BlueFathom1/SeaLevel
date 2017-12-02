@@ -1,8 +1,8 @@
 # SeaLevel
 
-Making deeper more meaningful connections 
+Diving deeper for a more meaningful connection within and without. 
 
-Seek first to understand 
+Seek first to understand.
 
 Ask the right questions. 
 
